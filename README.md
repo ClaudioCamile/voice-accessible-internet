@@ -16,11 +16,8 @@ But for us - they are "less", and why? because we are the best, and thay are onl
 
 In my current project I'm trying to break my iced hart and I write, looking for, and hopfully will find, a way to make my transparent brothers and sisters more accessible web, it's so trivial for us but almost inconceivable for "them", and since I'm only one person who has acquired very limited information in his life, the project I write now very limited, there for I invite all mankind with no diffrietnt race, religion or sex to join me, lift the "glove" and promote - in the way of each and every one - this idea.
 
-I have no idea how much each of us has been exposed to the truth about human behavior in ancient societies, but from what I remember learning - here and there during life - whoever was a "burden" on society,  was thrown over the cliff into the abyss, hundreds and thousands of years later - in our present - It's much easier for all of us to do the exact same thing today, but we can strive and try - as a human being - to be better, to have an compassion feeling for ourselves & others.it allways start from small things.
+I have no idea how much each of us has been exposed to the truth about human behavior in ancient societies, but from what I remember learning - here and there during life - whoever was a "burden" on society,  was thrown over the cliff into the abyss, hundreds and thousands of years later - in our present - It's much easier for all of us to do the exact same thing today, but we can strive and try - as a human being - to be better, to have an compassion feeling for ourselves & others. it allways start from small things.
 
 
-I say It's time to change.... 
-who will join me ?!
-
-Everyone are welcome to join ...
-The power belong to the dreamers....
+I say It's time to change, who will join me ?!
+Everyone are welcome to join! The power belong to the dreamers....
