@@ -6,7 +6,7 @@ One of the things that excites me the most and makes me passionate is dealing wi
 Now let's leave for a second the big money of security and identification, smart homes, court detention facilities and more - countless applications.
 
 Let's take a moment out of the financial speed and the constant running after the money, okay? A person who has a billion in it's bank - and knows that in another ten minutes he is going to die, will give his entire billion in another ten minutes of respite - unless he / she is very unconnected to itself at all, and things are clear, known and simple.
-Thank God we all see, taste and hear fine, but quietly, without making "unnecessary" noise, there are many, brothers and sisters that for them it's a different story, their encounter with a world very different from ours - a completely different experience, and I say the words very gently and carefully.
+Thank God we all see, taste and hear fine, but quietly, without making "unnecessary" noise, there are many, many brothers and sisters that for them it's a whole different story,  a whole different world, their encounter with a world very different from ours - a completely different experience, and I say the words very gently and carefully.
 
 Most of us prefer to close our eyes, shat up our ears and interests, that's in order to divide ourselves from then rather than experience  with them in a far destance unreichable solidarity away their pain, what they feall, how they taste ther lifes, are they a lone? don't we too!
 
