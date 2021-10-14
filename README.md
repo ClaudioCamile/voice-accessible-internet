@@ -8,7 +8,7 @@ Let's take a moment and stop out of the financial maraton and the constant runni
 
 Things are clear, known and simple. Thank God we all see, taste and hear fine, but quietly, without making "unnecessary" noise, there are many, many of us that for them it's a whole different story, a whole different world, their encounter with a world very different from ours - a completely different experience, and I say the words very gently and carefully.
 
-Most of us prefer to close our eyes, shat down our ears and move our faces aside in order to divide ourselves from then rather than experience with them in a far destance unreichable solidarity away their pain - what they feall, how they taste ther lifes, are they a lone? don't we too!
+Most of us prefer to close our eyes, shat down our ears and move our faces aside in order to divide ourselves from them rather than experience with them and from a far destance unreichable solidarity away their pain - what they feall, how they taste ther lifes, are they a lone? don't we too!
 
 The result is that for most of us there is “everyone” and there are the "transparent people" - so we call them in our minds, that's in order to feal better with our selfs, but the trufh is that they are also friends in the same univarce as we do, to the same place which we are belong, under the same sky,
 
