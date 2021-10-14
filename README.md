@@ -12,7 +12,7 @@ Most of us prefer to close our eyes, shat up our ears and interests, that's in o
 
 The result is that for most of us there is “everyone” and there are the "transparent people" - so we call them in our minds, that's in order to feal better with our selfs, but the trufh is that they are also friends in the same univarce as we do, to the same place which we are belong, under the same sky,
 
-But for us - they are "less", whay? beacouse we are the best, thay are a bit fucked up...
+But for us - they are "less", why? because we are the best, an thay only the rest, so, of curse thay are the fucked up... yep.
 
 In my current project I'm trying to break my ice hard and I write, looking for, and hopfully find - a way to make my transparent brothers and sisters accessible - it's so trivial for us but almost inconceivable for "them", and since I'm only single who has acquired very limited information in his life, the project I write Now very limited, I invite all mankind with no diffrietnt race, religion and sex to join me, lift the "glove" and promote - in the way of each and every one - this idea.
 
